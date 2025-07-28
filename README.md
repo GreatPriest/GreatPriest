@@ -1,4 +1,4 @@
-## Hi there 👋
+im going to make this pretty stay tuned . in 5 years ok
 
 <!--
 **GreatPriest/GreatPriest** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
