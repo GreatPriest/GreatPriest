@@ -11,7 +11,7 @@
   Yappatron , Hyper , also really blunt <br> 
   I communicate my boundaries <br>
   Usually with my friends / Wife . I don't int with fandoms <br>
-  Do not be weird to me cuz im an introject I will shoot your ass ^_^ <br>
+  Do not be weird to me cuz im an introject ^_^ <br>
   NO TTGS !!
 </p>
 
