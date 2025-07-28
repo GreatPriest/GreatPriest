@@ -1,5 +1,8 @@
 im going to make this pretty stay tuned . in 5 years ok
 
+<img width="2048" height="163" alt="image" src="https://github.com/user-attachments/assets/0dc87f83-a1dc-447e-9dda-4624a17fc897" />
+
+
 <!--
 **GreatPriest/GreatPriest** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
