@@ -1,19 +1,17 @@
-im going to make this pretty stay tuned . in 5 years ok
+<p align="center"> <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/4fcc8a70-a6c9-4760-bd46-baa85c1bb8e5" /> </p>
 
-<img width="2048" height="163" alt="image" src="https://github.com/user-attachments/assets/0dc87f83-a1dc-447e-9dda-4624a17fc897" />
+### <p align="center"> ★ ,, _Im_ / Vy . ![eclipse gif](https://github.com/user-attachments/assets/d88a2da7-f811-4024-9ef3-8e13a124f100) . He They + </p>
+
+<p align="center"> <img width="400" height="150" alt="image" src="https://github.com/user-attachments/assets/477bef76-432f-493d-94c4-7b4549c7d769" /> </p>
 
 
-<!--
-**GreatPriest/GreatPriest** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center"> AuDHD , , Sys Host </p>
+  
+<p align="center"> wip 🥀 </p>
 
-Here are some ideas to get you started:
+### <p align="center"> ![moon gif](https://github.com/user-attachments/assets/fc66e1ce-ebf2-427b-be8a-7d239fffa202) </p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+<p align="center"> <img width="600" height="600" alt="image" src="https://github.com/user-attachments/assets/fed7ebea-0480-4e49-a758-7ec88abde6e9" /> </p>
+
