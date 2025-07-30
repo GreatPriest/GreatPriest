@@ -30,7 +30,7 @@
 
 ### <p align="center"> ![moon gif](https://github.com/user-attachments/assets/fc66e1ce-ebf2-427b-be8a-7d239fffa202) </p>
 
-
+<p align="center"> " Proof that we are the sun and moon ... best friends -- bound together as one !! ,, </p>
 
 <p align="center"> <img width="600" height="600" alt="image" src="https://github.com/user-attachments/assets/fed7ebea-0480-4e49-a758-7ec88abde6e9" /> </p>
 
