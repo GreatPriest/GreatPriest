@@ -15,7 +15,11 @@
   NO TTGS !!
 </p>
 
-<p align="center"> ★ </p>
+<div align="center">
+
+![](https://komarev.com/ghpvc/?username=GreatPriest&color=161040&style=plastic&label=🌙&abbreviated=true)
+
+<div align="left">
 
 <p align="center"> 
   Dni • Freaks , Under 15 <br>
